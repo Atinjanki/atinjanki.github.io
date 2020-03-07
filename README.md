@@ -1,1 +1,0 @@
-# atinjanki.github.io
